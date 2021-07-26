@@ -2,6 +2,7 @@
 
 
 
+
 - 🔭 I’m currently working on minecraft AI using python 
 - 🌱 I’m currently learning c++
 - 🤔 I’m looking for help with Crab Bot
@@ -9,6 +10,8 @@
 - 📫 How to reach me: Discord: NinjaRacc#6969
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm shit 
+
+
 
 
 
