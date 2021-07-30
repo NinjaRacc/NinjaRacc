@@ -8,7 +8,7 @@
 - 🤔 I’m looking for help with Crab Bot
 - 💬 Ask me about anything!
 - 📫 How to reach me: Discord: NinjaRacc#6969
-- 😄 Pronouns: he/him
+- 😄 Pronouns: he/him re/tard
 - ⚡ Fun fact: i'm shit 
 
 
