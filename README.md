@@ -3,7 +3,7 @@
 
 
 
-- 🔭 I’m currently working on RaccHack 😎
+- 🔭 I’m currently working on crab rewrite😎
 - 🌱 I’m currently learning c#
 - 🤔 I’m looking for help with Crab Bot
 - 💬 Ask me about anything!
