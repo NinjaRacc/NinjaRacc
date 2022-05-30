@@ -3,11 +3,10 @@
 
 
 
-- 🔭 I’m currently working on crab rewrite😎
-- 🌱 I’m currently learning C
-- 🤔 I’m looking for help with Crab Bot
+- 🔭 I’m currently working on a roblox alt generator!😎
+- 🌱 I’m currently learning ethical hacking
 - 💬 Ask me about anything!
-- 📫 How to reach me: Discord: NinjaRacc#6969
+- 📫 How to reach me: Discord: NinjaRacc#3830
 - 😄 Pronouns: he/him re/tard
 - ⚡ Fun fact: i'm shit 
 
