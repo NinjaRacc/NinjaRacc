@@ -3,7 +3,7 @@
 
 
 
-- 🔭 I’m currently working on a number of different projects!
+- 🔭 I’m currently working on Aite!
 - 🌱 I’m currently learning ethical hacking
 - 💬 Ask me about anything!
 - 📫 How to reach me: Discord: NinjaRacc#3830
