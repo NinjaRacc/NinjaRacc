@@ -7,7 +7,7 @@
 - 🌱 I’m currently learning ethical hacking
 - 💬 Ask me about anything!
 - 📫 How to reach me: Discord: NinjaRacc#3830
-- 😄 Pronouns: he/him re/tard
+- 😄 Pronouns: she/her they/them :sunglasses:
 - ⚡ Fun fact: i'm shit 
 
 
