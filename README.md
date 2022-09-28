@@ -1,3 +1,5 @@
+<p align="left"> <img src="https://gpvc.arturio.dev/NinjaRacc" alt="NinjaRacc" /> </p>
+
 ### Hi there 👋
 
 
