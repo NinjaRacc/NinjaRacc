@@ -9,8 +9,8 @@
 - 🌱 I’m currently learning ethical hacking
 - 💬 Ask me about anything!
 - 📫 How to reach me: Discord: NinjaRacc#3830
-- 😄 Pronouns: she/her they/them :sunglasses:
-- ⚡ Fun fact: i'm shit 
+- 😄 Pronouns: literally any idc :sunglasses:
+- ⚡ Fun fact: yo'ere mom
 
 
 
