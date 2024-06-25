@@ -5,10 +5,10 @@
 
 
 
-- 🔭 I’m currently working on Aite!
-- 🌱 I’m currently learning ethical hacking
+- 🔭 I’m currently working on custom slimevr tracker pcb/case
+- 🌱 I’m currently learning cad x.x
 - 💬 Ask me about anything!
-- 📫 How to reach me: Discord: NinjaRacc#3830
+- 📫 How to reach me: Discord: ninjaracc
 - 😄 Pronouns: literally any idc :sunglasses:
 - ⚡ Fun fact: yo'ere mom
 
